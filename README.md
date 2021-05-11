@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Sashakhoo
+- 👀 I’m passionate in Machine Learning || Deep Learning 
+- 🌱 I’m currently studying in National University Of Malaysia 
+- 📫 you can reach me at sashakhoo8@gmail.com
+- ✨ I'm looking for oppurtunities inside and outside of Malaysia 
