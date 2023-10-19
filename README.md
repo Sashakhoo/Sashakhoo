@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Sashakhoo
-- 👀 I’m passionate in Machine Learning 
-- 🌱 I’m currently studying in National University Of Malaysia 
+- 👀 I’m passionate in Machine Learning | Data Analytics 
+- 🌱 A Software Engineer in SNS Network 
 - 📫 you can reach me at sashakhoo8@gmail.com
-- ✨ I'm looking for oppurtunities inside and outside of Malaysia 
+- ✨ I'm looking for oppurtunities in Kuala Lumpur | Penang | Johor Bahru | Singapore
