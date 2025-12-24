@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Sashakhoo
 - 👀 I’m passionate in Machine Learning | Data Analytics 
 - 🌱 A Software Engineer in SNS Network 
-- 📫 you can reach me at sashakhoo8@gmail.com
+- 📫 you can reach me at +601131652854
 - ✨ I'm looking for oppurtunities in Kuala Lumpur | Penang | Johor Bahru | Singapore
